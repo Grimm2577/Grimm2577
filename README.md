@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Grimm2577
+- 👀 I’m interested in coding , specifically Java , C# , python and anything interesting or similar.
+- 🌱 I’m currently learning , pascal in the delphi IDE because of my school.
+- 💞️ I’m looking to collaborate on fun projects where i can put my knowledge to use.
+- 📫 How to reach me on my email hattighl@gmail.com
